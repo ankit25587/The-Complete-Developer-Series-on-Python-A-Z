@@ -13,9 +13,9 @@ https://www.udemy.com/course/data-science-with-python-and-pandas/?referralCode=5
 
 
 Channel URL : https://www.youtube.com/channel/UCRhhFunXogiEK3WiinHGTAQ
+
 Discord: https://discordapp.com/invite/zZnaKvf
 My Udemy profile Checkout My Other course on Python Data Science Machine learning : https://www.udemy.com/user/ankitmistry/
 
 Connect with me here:
-
 Facebook: https://www.facebook.com/ankit.mistry.52
